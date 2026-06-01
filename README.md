@@ -5,5 +5,6 @@
 -  How to reach me humbertonq@gmail.com
 -  Pronouns: huarsi and huarsi 🤷🏻‍♂️
 -  Fun fact: me 🤷🏻‍♂️
+-  Mi lengua nativa es el español, hablo poco ingles pero entiendo.
 
 
